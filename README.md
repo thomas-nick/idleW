@@ -1,4 +1,4 @@
-# Idlewild Skins
+# Idlewild Skins (Mega Holidays of Fun and Cheer Disc Golf before the seasonal depression hits, when coupled with the coronavirus and 2020, god willing be the end to this bull shit mother fn year match)
 
 Idlewild Skins // Sunday December 6, 2020
 
