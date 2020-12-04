@@ -22,4 +22,8 @@ Idlewild Skins // Sunday December 6, 2020
 > The longest successful drive after first inbound throw down the fairway will 
 > take 10 dollars. 
 
+# Winner
+  - Winner will win money based on accumulated skins. 2 freedom dollars per hole.
+  - Winner with the most skins at the end of the round will take 50 dollars. 
+  - If a push happens then we will continue playing till we have a winner. The skins in accumulated in Sudden Death will go towards your total skins also. 
 
